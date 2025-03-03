@@ -1,1 +1,0 @@
-i have started to understand it
